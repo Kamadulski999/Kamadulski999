@@ -8,9 +8,9 @@
   
 To reach me;
 
-(555) 555-5555
 
-Kamadulski999@gmail.com
+
+andrew.kamadulski@gmail.com
 
 https://kamadulski999.github.io/Portfolio/
 
