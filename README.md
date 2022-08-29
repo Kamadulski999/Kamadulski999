@@ -12,6 +12,6 @@ To reach me;
 
 andrew.kamadulski@gmail.com
 
-https://kamadulski999.github.io/Portfolio/
+
 
 
